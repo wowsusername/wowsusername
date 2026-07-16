@@ -1,16 +1,26 @@
-## Hi there 👋
+»══════════════════════«
+<div align="center">
 
-<!--
-**wowsusername/wowsusername** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+"..."
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>°｡⋆ ⟣🪼⟢ ⋆｡°<br>
+
+
+***<ins>im soon to be 18 so under 15 dni!</ins>***
+
+¡! im always semi afk watching stuff or playing !¡ 
+¡watching a stream¡
+
+**c+h freely!**
+**int freely!
+ unless i have 'afk' in my user
+and i love to rp too only oc!**
+
+<sub>also my wifi is so ASS</sub>
+
+<a href="https://en.pronouns.page/@wows">pronouns<sub>page</sub> </a>    
+<a href="https://pronouns.cc/@user">pronouns.c</a>
+
+</div>
+»══════════════════════«
