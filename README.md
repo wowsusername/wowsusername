@@ -13,8 +13,9 @@
 ¡watching a stream¡
 
 **c+h freely!**
-**int freely!
- unless i have 'afk' in my user
+**int freely!**
+
+**unless i have 'afk' in my user
 and i love to rp too only oc!**
 
 <sub>also my wifi is so ASS</sub>
