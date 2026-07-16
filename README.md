@@ -1,13 +1,13 @@
 <div align="center">
-»══════════════════════«
  
-"may the stars guidd you."
+»══════════════════════«
 
+"may the stars guide you."
 
-<br>°｡⋆ ⟣🪼⟢ ⋆｡°<br>
+˚₊‧꒰ა ☀️ ໒꒱‧₊˚
+<br>°｡⋆ ⟣🌟⟢ ⋆｡°<br>
 
-
-***<ins>im soon to be 18 so under 15 dni!</ins>***
+***<ins>under 13 dni!</ins>***
 
 ¡! im always semi afk watching stuff or playing !¡ 
 ¡watching a stream¡
@@ -21,6 +21,5 @@ and i love to rp too only oc!**
 
 <a href="https://en.pronouns.page/@wows">pronouns<sub>page</sub> </a>    
 <a href="https://pronouns.cc/@user">pronouns.c</a>
-
 »══════════════════════«
 </div>
