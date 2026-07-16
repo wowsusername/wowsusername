@@ -7,7 +7,7 @@
 ˚₊‧꒰ა ☀️ ໒꒱‧₊˚
 <br>°｡⋆ ⟣🌟⟢ ⋆｡°<br>
 
-***<ins>under 13 dni!</ins>***
+***<ins>under 14 dni!</ins>***
 
 ¡! im always semi afk watching stuff or playing !¡ 
 ¡watching a stream¡
