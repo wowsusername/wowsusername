@@ -12,11 +12,10 @@
 ¡! im always semi afk watching stuff or playing !¡ 
 ¡watching a stream¡
 
-**c+h freely!**
-**int freely!**
+**c+h freely!** **int freely!**<br>
+unless i have 'afk' in my user<br>
 
-**unless i have 'afk' in my user
-and i love to rp too only oc!**
+!aaand i love to rp too only oc!
 
 <sub>also my wifi is so ASS</sub>
 
