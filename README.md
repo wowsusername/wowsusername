@@ -1,7 +1,7 @@
-»══════════════════════«
 <div align="center">
-
-"..."
+»══════════════════════«
+ 
+"may the stars guidd you."
 
 
 <br>°｡⋆ ⟣🪼⟢ ⋆｡°<br>
@@ -22,5 +22,5 @@ and i love to rp too only oc!**
 <a href="https://en.pronouns.page/@wows">pronouns<sub>page</sub> </a>    
 <a href="https://pronouns.cc/@user">pronouns.c</a>
 
-</div>
 »══════════════════════«
+</div>
