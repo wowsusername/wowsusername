@@ -10,7 +10,6 @@
 ***<ins>under 14 dni!</ins>***
 
 ¡! im always semi afk watching stuff or playing !¡ 
-¡watching a video¡
 
 **c+h freely!** **int freely!**<br>
 unless i have 'afk' in my user<br>
