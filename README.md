@@ -2,7 +2,7 @@
  
 »══════════════════════«
 
-"may the stars guide you."
+"Why can't we laugh now like we did then? / How come I see you and ache instead?"
 
 ˚₊‧꒰ა ☀️ ໒꒱‧₊˚
 <br>°｡⋆ ⟣🌟⟢ ⋆｡°<br>
