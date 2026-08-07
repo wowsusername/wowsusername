@@ -18,6 +18,7 @@ unless i have 'afk' in my user<br>
 
 <sub>also my wifi is so ASS</sub>
 
+*<sub>get to know me moreee on these website!!</sub>*
 <a href="https://en.pronouns.page/@wows">pronouns<sub>page</sub> </a>    
 <a href="https://pronouns.cc/@user">pronouns.c</a>
 »══════════════════════«
