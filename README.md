@@ -2,7 +2,11 @@
  
 »══════════════════════«
 
-"Why can't we laugh now like we did then? / How come I see you and ache instead?"
+"A god, a lord, a planetary queen
+A bee, my horde
+Is buzzing in my head
+Your eyes, a board and forever it says:
+Endure, endure, endure"
 
 ˚₊‧꒰ა ☀️ ໒꒱‧₊˚
 <br>°｡⋆ ⟣🌟⟢ ⋆｡°<br>
