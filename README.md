@@ -2,7 +2,7 @@
  
 ![](https://komarev.com/ghpvc/?username=wowsusername&label=~snakes&color=242424&style=flat)
  
-»══════════════════════«
+»«
 
 "𝙻𝚘𝚘𝚔 𝚕𝚒𝚔𝚎 𝚊𝚗 𝚒𝚗𝚗𝚘𝚌𝚎𝚗𝚝 𝚏𝚕𝚘𝚠𝚎𝚛, 𝚋𝚞𝚝 𝚋𝚎 𝚝𝚑𝚎 𝚜𝚎𝚛𝚙𝚎𝚗𝚝 𝚞𝚗𝚍𝚎𝚛 𝚒𝚝.” — 𝚆𝚒𝚕𝚕𝚒𝚊𝚖 𝚂𝚑𝚊𝚔𝚎𝚜𝚙𝚎𝚊𝚛𝚎, 𝙼𝚊𝚌𝚋𝚎𝚝𝚑
 
