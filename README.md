@@ -1,5 +1,7 @@
 <div align="center">
  
+![](https://komarev.com/ghpvc/?username=wowsusername&label=Profile+Views&color=242424&style=flat)
+ 
 »══════════════════════«
 
 "A god, a lord, a planetary queen
