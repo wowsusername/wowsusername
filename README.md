@@ -2,7 +2,9 @@
  ˚₊‧꒰ა ☀️ ໒꒱‧₊˚
 <br>°｡⋆ ⟣🌟⟢ ⋆｡°</br>
  
-![](https://komarev.com/ghpvc/?username=wowsusername&label=~snakes&color=242424&style=flat)
+![](https://komarev.com/ghpvc/?username=wowsusername&label=yappers&color=242424&style=flat)
+
+ [![Spotify](https://img.shields.io/badge/Spotify-1DB954?style=flat&logo=spotify&logoColor=white)](https://open.spotify.com/user/31m5vyqijrrc44o3s5eghhuiu5e4?si=EBqDWzUQR1mtifJ5tFMsyQ&utm_source=native-share-menu)
  
 »«
 
@@ -22,5 +24,5 @@ unless i have 'afk' in my user ofc<br>
 
 <a href="https://en.pronouns.page/@wows">pronouns<sub>page</sub> </a>    
 <a href="https://pronouns.cc/@user">pronouns.c</a>
-»══════════════════════«
+»«
 </div>
