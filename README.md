@@ -1,6 +1,6 @@
 <div align="center">
- ˚₊‧꒰ა ☀️ ໒꒱‧₊˚
-<br>°｡⋆ ⟣🌟⟢ ⋆｡°</br>
+ wip
+<br>˚₊‧꒰ა ☀️ ໒꒱‧₊˚</br>
  
 ![](https://komarev.com/ghpvc/?username=wowsusername&label=👀…&color=242424&style=flat)
 
@@ -13,8 +13,6 @@
 
 ¡! im always semi afk watching stuff or playing !¡ 
 
-**c+h & int freely!**<br>
-unless i have 'afk' in my user ofc<br>
 
 <sub>also my wifi is so ASS</sub>
 
